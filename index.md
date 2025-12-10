@@ -12,6 +12,11 @@ Before the day gets you  get the most of it
 
 ### Books
 
+
+[Pre-algebra boook](https://drive.google.com/drive/folders/1vWsjRi6IUTJWZCgNedUkRiEmXZNYV5bm?usp=sharing)
+
+[Pre-algebra book solutions](https://drive.google.com/file/d/1yTepZPPKUTgaornJLGhC2kaQ_AEiEg-C/view?usp=drive_link) 
+
 [Math book and workbook](https://drive.google.com/drive/folders/1X11_nrPcCr5NV88IDE6-IWYgWbcw_W5N?usp=sharing)
 
 [Math videos](https://artofproblemsolving.com/videos/prealgebra)
