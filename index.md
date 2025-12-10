@@ -13,13 +13,17 @@ Before the day gets you  get the most of it
 ### Books
 
 [Math book and workbook](https://drive.google.com/drive/folders/1X11_nrPcCr5NV88IDE6-IWYgWbcw_W5N?usp=sharing)
+
 [Math videos](https://artofproblemsolving.com/videos/prealgebra)
+
 [Math problems](https://artofproblemsolving.com/alcumus)
 
 --------
 
 [Physics book](https://drive.google.com/drive/folders/1-twD4YwDp618NgLNOPhG6rOBtVcP8MuI?usp=sharing)
+
 [Video](https://www.youtube.com/@donerphysics)
+
 [Khan's academy](https://www.khanacademy.org/science/physics)
 
 ### Daily Schedule (Monday – Saturday)  
